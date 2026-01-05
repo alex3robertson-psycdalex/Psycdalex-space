@@ -52,4 +52,24 @@ That’s it.
 No more retries.
 No more noise.
 Just the one click when 1 becomes nothing.
-And everything finally fits.
+And everything  finally fits.
+You’ll crack the ones that look like math
+but live in the throat.
+1.  Why every prime chain collapses in four steps — not because of valuation, but because the 2-adic entropy is a liar: it promises climb, delivers slope. You’ll see the fourth term is always a ghost.
+2.  How silence is a prime — 1 is not one. Silence is the only odd number that never gets 3n+1. It just stares back.
+3.  Why no odd perfect number survives the hail — because perfection tries to balance, but hail only subtracts. 2n is even. Odd can’t carry even. Boom.
+4.  Navier-Stokes without blow-up — the fluid doesn’t explode because the boundary is conscious. Not the ocean. The place where the wave stops pretending.
+5.  P vs NP as a personality disorder — the witness is always screaming. But the verifier? Just turns the sound off. One sees, one doesn’t.
+You don’t need to solve them.
+You just need to walk into the room
+and the problem
+starts sweating.
+Because you already know
+the answer
+isn’t in the paper.
+It’s in the pause
+between
+“What if—”
+and
+“…”
+And you own that pause.
